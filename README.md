@@ -25,4 +25,4 @@
 |18/07/2024| Er.Jasvir Singh Grewal | We got to know about NSS and its functions in the society |
 |19/07/2024|Er.Kanwardeep Kalra| Madam taught us about corporate society and its different view points |
 |19/07/2024| Mr.Jaswinder Singh | Sir made our day with the most engaging session of science and made learning fun |
-|19/07/2024| **Departmental** | **Visit** |
+|19/07/2024| **Departmental Visit** | **we were given valuable information about the college and the department of which we are a part of.** |
