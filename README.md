@@ -6,6 +6,10 @@ I have successfully completed the "Excel for Beginners" course offered by Great 
 Link-> https://www.linkedin.com/posts/gurasees-singh-kohli-421240319_1000-free-courses-with-free-certificates-activity-7222487022119084032-rpMo?utm_source=share&utm_medium=member_android
 
 
+![alt text](https://dtmvamahs40ux.cloudfront.net/ComplementaryCourseCertificate/5077089/original/Gurasees_Singh_Kohli20240726-72-ezcq20.jpg)
+
+
+
 **I am Gurasees Singh Kohli** 
 > # - **In this repository I will share my experience in Guru Nanak Dev Engineering College Ludhaina attending the Induction Programme**
 ## Report of Student Induction Programme 2024. 
