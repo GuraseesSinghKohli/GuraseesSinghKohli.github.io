@@ -2,7 +2,7 @@
 ## Activity Report of Student Induction Programme 2024
 
 **I am Gurasees Singh Kohli** 
-> # - **In this repository I will share my experience in Guru Nanak Dev Engineering College Ludhaina about Induction Programme**
+> # - **In this repository I will share my experience in Guru Nanak Dev Engineering College Ludhaina attending the Induction Programme**
 ## Report of Student Induction Programme 2024. 
 
 | Date | Resource Person | Description |
